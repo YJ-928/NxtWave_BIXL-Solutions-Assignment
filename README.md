@@ -1,1 +1,1 @@
-# NxtWave_BIXL-Solutions-Assignment
+# NxtWave BIXL Solutions Assessment 2024
